@@ -1,1 +1,1 @@
-BATUYYYUU%26.11.2023
+Kabul ediyorum%26.11.2023
